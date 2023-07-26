@@ -1,0 +1,1 @@
+# techInfo.github.io
